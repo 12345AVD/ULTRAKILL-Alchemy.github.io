@@ -39,6 +39,17 @@ Putting a torch on the salt altar fills it with salt if it does something (P-1 e
 The image appears to be a statue of a lion with its head missing, possibly stolen by the Hideous Mass. Next to it lies the Sun.<br>
 This could be a reference to the alchemical imagery of aqua regia, a green lion attacking the sun. Where the lion is the aqua regia attacking/consuming the sun which is gold (https://en.wikipedia.org/wiki/Suns_in_alchemy)<br>
 
+## The Seven Classical Planets and 5 Archangels
+In the final section of 8-3, the walls fall over to reveal the cosmos whith the seven Classical Planets(Sun, Moon, Mercury, Venus, Mars, Jupiter, Saturn) alonside Earth.<br>
+![](images/WikPlanetaryAlchemicalMetals.png)<br>
+![](images/WikClassicalPlanet.png)<br>
+The 7 planets correspond to 7 alchemical metals. Furthermore, the correspond to Roman, Greek, Norse, Saxon as well as Hindu, Babylonian, Armenian and Egyptian(not shown) Gods.<br>
+![](images/8-1-Archangels.png)<br>
+![](images/8-1-ArchangelsHighDetail.png)<br>
+![](images/8-1-ArchangelsScratchedOutMetaphor.png)<br>
+In 8-1, a painting of 5 Archangels can be seen with metaphors relating to God. The second to last one is scratech out however but closely examining its plaque it most likely reads, "LUCIFER  God's Kindness"<br>
+If we omit the Sun(represents God) and the Moon(could represent something almost equally oppposite to God like Hell Itself/V1), we have 5 planets, 5 alchemical metals which can correspond to the 5 Archangels and like the 5 Archangels, the 5 planets have their own traits which can be matched with the Archangels.<br>
+
 ## 4-3
 4-3 seems to be an alchemical facility. It contains piles of magnesium spread around the level.<br>
 Outside the Tomb of Kings are piles of gold.<br>
