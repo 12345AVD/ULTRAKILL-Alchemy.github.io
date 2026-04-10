@@ -36,10 +36,10 @@ Putting a torch on the salt altar fills it with salt if it does something (P-1 e
 ![](images/7-1-CrossTreeOfLife.png)
 ![](images/7-1-TreeOfLife.png)<br>
 ![](images/7-1-TreeOfLifeBook.png)<br>
-In Ultrakill rather than the crucifixion of Jesus Christ, the Cross is a symbol for the Tree of Life, planted by god and is the source of all blood.
+In Ultrakill rather than the crucifixion of Jesus Christ, the Cross is a symbol for the Tree of Life, planted by god and is the source of all blood.<br>
 ![](images/8-3-TreacherySquaredCircle.png)<br>
 ![](images/SquaredCircle.png)<br>
-At the end of 8-3 right before the helevator door there is a blood tree with the Squared Circle, the alchemical symbol for the Philosopher's stone, with the alchemical symbols for the Tria Prima, Salt, Sulfur and Mercury, engraved on the corners of the triangle in the symbol engraved below the blood tree. This could be Hell Itself revealing its plan to complete the Magnum Opus to create the Tree of Life and Hell thought it would be cinematic as V1 was intended to die in 8-4 due to its name "Final Flight". ALso this part is right after a sequence of fragments of the layers of Hell in order until Fraud, so it could be implied that that part is Treachery Layer.
+At the end of 8-3 right before the helevator door there is a blood tree with the Squared Circle, the alchemical symbol for the Philosopher's stone, with the alchemical symbols for the Tria Prima, Salt, Sulfur and Mercury, engraved on the corners of the triangle in the symbol engraved below the blood tree. This could be Hell Itself revealing its plan to complete the Magnum Opus to create the Tree of Life and Hell thought it would be cinematic as V1 was intended to die in 8-4 due to its name "Final Flight". ALso this part is right after a sequence of fragments of the layers of Hell in order until Fraud, so it could be implied that that part is Treachery Layer.<br>
 
 ## The Lion eating Sun statue
 ![this fucker might also be important](images/image11.png)<br>
