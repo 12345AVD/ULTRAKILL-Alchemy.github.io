@@ -60,7 +60,7 @@ The 7 planets correspond to 7 alchemical metals. Furthermore, the correspond to 
 ![](images/8-1-ArchangelsHighDetail.png)<br>
 ![](images/8-1-ArchangelsScratchedOutMetaphor.png)<br>
 In 8-1, a painting of 5 Archangels can be seen with metaphors relating to God. The second to last one is scratech out however but closely examining its plaque it most likely reads, "LUCIFER  God's Kindness"<br>
-If we omit the Sun(represents God) and the Moon(could represent something almost equally oppposite to God like Hell Itself/V1), we have 5 planets, 5 alchemical metals which can correspond to the 5 Archangels and like the 5 Archangels, the 5 planets have their own traits which can be matched with the Archnagels.<br>
+If we omit the Sun(represents God) and the Moon(could represent something almost equally oppposite to God like Hell Itself/V1), we have 5 planets, 5 alchemical metals which can correspond to the 5 Archangels and like the 5 Archangels, the 5 planets have their own traits which can be matched with the Archangels.<br>
 
 ## 4-3
 4-3 seems to be an alchemical facility. It contains piles of magnesium spread around the level.<br>
