@@ -40,7 +40,7 @@ The image appears to be a statue of a lion with its head missing, possibly stole
 This could be a reference to the alchemical imagery of aqua regia, a green lion attacking the sun. Where the lion is the aqua regia attacking/consuming the sun which is gold (https://en.wikipedia.org/wiki/Suns_in_alchemy)<br>
 
 ## The Seven Classical Planets and 5 Archangels
-In the final section of 8-3, the walls fall over to reveal the cosmos whith the seven Classical Planets(Sun, Moon, Mercury, Venus, Mars, Jupiter, Saturn) alonside Earth.<br>
+In the final section of 8-3, the walls fall over to reveal the cosmos with the seven Classical Planets(Sun, Moon, Mercury, Venus, Mars, Jupiter, Saturn) alongside Earth.<br>
 ![](images/WikPlanetaryAlchemicalMetals.png)<br>
 ![](images/WikClassicalPlanet.png)<br>
 The 7 planets correspond to 7 alchemical metals. Furthermore, the correspond to Roman, Greek, Norse, Saxon as well as Hindu, Babylonian, Armenian and Egyptian(not shown) Gods.<br>
